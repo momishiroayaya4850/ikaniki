@@ -6,9 +6,9 @@ test
 kojima is god!
 kojima is god!
 kojima is god!
-エディバリセイ！
+エディヴァリセイ！
 kojima is god!
 kojima is god!
 kojima is god!
 
-スネーク「はぁ～（ため息）」 
+スネーク「・・・カズ？」 
